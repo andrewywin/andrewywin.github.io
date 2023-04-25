@@ -1,1 +1,1 @@
-# I will post food reviews here with a picture of what I got
+# I will post food reviews here with a picture of what I ate
